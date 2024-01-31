@@ -11,6 +11,8 @@ John woke to the sound of traffic, the sky was gray.
 After his typical breakfast of toast and an egg he left for school.
 Normally John would have walked down Bleaker street, but today there was construction and he decided to take Flanders behind the zoo.
 
+John feared The Zookeeper would find him but only ever hearing rumors about him decided to press onwards.
+
 Being on time was not one of John’s specialties today would prove to be no different.
 As he moved slowly.
 As he walked behind the zoo he could see the trees and thick foliage growing above the heavy stone wall that ran behind the zoo; and hear the sounds of animals in the distance.
@@ -31,3 +33,4 @@ The end.
 - Unicorn King: Alan
 - Friendly Koala: Adriana
 - Janitor: Mitchell
+  -The Zookeeper: unknown
