@@ -24,7 +24,7 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-John met the Unicorn King who granted him magic powers. With these new powers John was able to quickly confirm that The Zookeeper did not exist. John kept these new powers a secret for the rest of his life.
+John met the Unicorn King who granted him magic powers. With these new powers John was able to quickly confirm that The Zookeeper does not exist. John kept these new powers a secret for the rest of his life.
 The end.
 
 ## Cast
